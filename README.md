@@ -1,2 +1,2 @@
-# Saved by _Alice_
+# Saved by _Alice_ (Discontinued)
 EFF's "Saved by _Alice_" Chinese Translation
